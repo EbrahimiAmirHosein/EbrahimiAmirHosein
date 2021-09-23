@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @EbrahimiAmirHosein
-- 💞️ I’m looking to collaborate on fields I've already shown my interest .
 - 📫 How to reach me amirh.ebrahimi1377@gmail.com
 
 <!---
